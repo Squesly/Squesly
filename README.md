@@ -1,2 +1,3 @@
-I'm squesila chan
-Please adorable me.
+Hi, I'm Squesly
+
+I like your mom!

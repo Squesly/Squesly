@@ -1,3 +1,3 @@
 Hi, I'm Squesly
 
-I like your mom!
+I'm 17 years old, I want to learn more about java and javascript!
